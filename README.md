@@ -1,4 +1,4 @@
 "# venomterminal" 
 
 Download setup file
-https://drive.google.com/file/d/1cXNyBOjMruEFp65FMsXkKWy5fAA268WV/view?usp=share_link
+https://mega.nz/file/10FkGRjA#cvELgJzO8QLzX8Mf-qOnW6-xHB7uqoAfG-8LA_wbscQ
